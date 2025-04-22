@@ -4,7 +4,6 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(A)ㅤKINGㅤⓘㅤ’s.ㅤELHEIMSㅤ}{   *Clocean.*   ![](https://files.catbox.moe/u2pe4x.gif) 
 ![](https://cdn.discordapp.com/attachments/1254818719931044034/1364220494160728114/ezgif.com-crop_1.gif?ex=6808e0d7&is=68078f57&hm=c5ba067223297178ac19c67e59c229fc4164f573ef6f44dbdb193abd300278a2&)
 
- ![](https://files.catbox.moe/yo1w4t.png) 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`You &  I`  . . .two souls   ㅤ𝓮𝓷𝓽𝔀𝓲𝓷𝓮𝓭
 beneath   ㅤthe  ㅤ 𝗠𝗼𝗼𝗻    氷    in silence   ‌　𝄃𝄚𝅦𝄚𝄚𝄡ㅤconfined.

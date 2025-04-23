@@ -1,7 +1,7 @@
  ***
  ***
  ![](https://files.catbox.moe/02lnyx.png) 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(A)ㅤKINGㅤⓘㅤ’s.ㅤELHEIMSㅤ}{   *Clocean.*   ![](https://files.catbox.moe/u2pe4x.gif) 
+ (A)ㅤKINGㅤⓘㅤ’s.ㅤELHEIMSㅤ}{   *Clocean.*   ![](https://files.catbox.moe/u2pe4x.gif) 
 ![](https://cdn.discordapp.com/attachments/1254818719931044034/1364220494160728114/ezgif.com-crop_1.gif?ex=6808e0d7&is=68078f57&hm=c5ba067223297178ac19c67e59c229fc4164f573ef6f44dbdb193abd300278a2&)
 
 
@@ -18,8 +18,8 @@ that  ㅤ lingers   ㅤendlessly  (   ..   𝄞  ..  )
 
 ![](https://files.catbox.moe/ha4ztq.png) 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/ugq8ee.gif) 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/ugq8ee.gif) 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://cdn.discordapp.com/attachments/1254816642614034534/1364411834429607946/1745371507769.gif?ex=6809930a&is=6808418a&hm=2cc41c5cd047f0b77ae19ef3e95dc1637d86a9f2f35f6edbf4fd35e8b8f279ab&) 
+ ![](https://cdn.discordapp.com/attachments/1254816642614034534/1364411834429607946/1745371507769.gif?ex=6809930a&is=6808418a&hm=2cc41c5cd047f0b77ae19ef3e95dc1637d86a9f2f35f6edbf4fd35e8b8f279ab&) 
 ***
 ***

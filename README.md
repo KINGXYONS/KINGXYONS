@@ -19,8 +19,9 @@ that  ㅤ lingers   ㅤendlessly  (   ..   𝄞  ..  )
 
 ![](https://files.catbox.moe/d6zkaw.png) 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ![](https://files.catbox.moe/ugq8ee.gif) 
 
  ![](https://cdn.discordapp.com/attachments/1254816642614034534/1364411834429607946/1745371507769.gif?ex=6809930a&is=6808418a&hm=2cc41c5cd047f0b77ae19ef3e95dc1637d86a9f2f35f6edbf4fd35e8b8f279ab&) 
+
+ ![](https://files.catbox.moe/gbis9j.png) ![](https://files.catbox.moe/seo650.png) ![](https://files.catbox.moe/ws1f6n.png) 
 ***
 ***

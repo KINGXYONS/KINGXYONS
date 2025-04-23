@@ -12,12 +12,13 @@ beneath   ㅤthe  ㅤ 𝗠𝗼𝗼𝗻    氷    in silence   ‌　𝄃𝄚𝅦
 just  ㅤ 𝒉𝒆𝒂𝒓𝒕𝒔 ㅤspeaking   ㅤevery  ㅤ word.
 ㅤ ㅤᦾ      `A  ㅤ 𝐋𝐨:𝐯𝐞  ㅤ` ![](https://files.catbox.moe/6r8igh.webp)ㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthat  ㅤ lingers   ㅤendlessly  (   ..   𝄞  ..  )
+that  ㅤ lingers   ㅤendlessly  (   ..   𝄞  ..  )
              though   ㅤthe   ㅤworld (  𖣦  ) may  ㅤ never   ㅤsee.
 ⠀
 
 ![](https://files.catbox.moe/ha4ztq.png) 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/ugq8ee.gif) 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://cdn.discordapp.com/attachments/1254816642614034534/1364411834429607946/1745371507769.gif?ex=6809930a&is=6808418a&hm=2cc41c5cd047f0b77ae19ef3e95dc1637d86a9f2f35f6edbf4fd35e8b8f279ab&) 
 ***

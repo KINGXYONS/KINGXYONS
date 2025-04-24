@@ -1,7 +1,7 @@
  
  ![](https://files.catbox.moe/02lnyx.png) 
  (A)ㅤKINGㅤⓘㅤ’s.ㅤELHEIMSㅤ}{   *Clocean.*   ![](https://files.catbox.moe/u7jys7.gif)) 
-![](https://cdn.discordapp.com/attachments/1254818719931044034/1364220494160728114/ezgif.com-crop_1.gif?ex=6808e0d7&is=68078f57&hm=c5ba067223297178ac19c67e59c229fc4164f573ef6f44dbdb193abd300278a2&)
+![](https://github.com/KINGXYONS/KINGXYONS/blob/d35df21921243ce363f111ab6b8c3e8414d94ef4/ezgif.com-crop%20(1).gif)
 ![](https://64.media.tumblr.com/b23b1a592fbd366dd3bf5917a9accb43/2323f0817bbce1f4-5a/s1280x1920/8c39f115592ee36c1430cfa796685864926fb53d.pnj) 
 
 
